@@ -4,7 +4,7 @@
 - 🌱 Atualmente estudando sobre Análise de dados
 - 👯 Procurando trabalhar com Engenharia de dados
 - 😄 Pronomes: Ele/dele
-- 💬 Estamos ai pra contato, quem sabe no instagram @raalfs 🤳
+- 💬 Estamos ai pra contato, quem sabe no instagram 🤳
 - 🌹  Por enquanto é isso 🤞
 
 
