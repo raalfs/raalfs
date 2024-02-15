@@ -1,6 +1,6 @@
 # Hey pessoal, Rafa aqui! 😎👋
  Fiz algumas mudanças no perfil, espero que gostem:
-- 🙌 Hoje estou estagiando na área de Ciencia de dados
+- 🙌 Hoje estou entrando na área de Ciencia de dados
 - 🌱 Atualmente estudando sobre Análise de dados
 - 👯 Procurando trabalhar com Engenharia de dados
 - 😄 Pronomes: Ele/dele
